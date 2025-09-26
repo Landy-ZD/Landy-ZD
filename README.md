@@ -15,4 +15,4 @@ Stay hungry, stay foolish! Forever curious, always exploring and always growing!
 ## 📫 Contact
 
 - **Email:** zdlandy@hotmail.com 
-- **LinkedIn:** [linkedin.com/in/你的用户名](https://linkedin.com/in/landyzhou) 
+- **LinkedIn:** [linkedin.com/in/landyzhou](https://linkedin.com/in/landyzhou) 
