@@ -1,16 +1,18 @@
-## Hi there 👋
+# 👋 Hello my friend, this is Dong ZHOU (Landy)
 
-<!--
-**Landy-ZD/Landy-ZD** is a ✨ _special_ ✨ repository because its `README.md` (this file) appears on your GitHub profile.
+---
 
-Here are some ideas to get you started:
+## 📝 About Me
 
-- 🔭 I’m currently working on ...
-- 🌱 I’m currently learning ...
-- 👯 I’m looking to collaborate on ...
-- 🤔 I’m looking for help with ...
-- 💬 Ask me about ...
-- 📫 How to reach me: ...
-- 😄 Pronouns: ...
-- ⚡ Fun fact: ...
--->
+I used to worked at global top executive search firms, helping leading companies around the world recruit senior executives in the Asia-Pacific region. I also supported outstanding Chinese enterprises in building companies from 0 to 1, and from 1 to 100.
+
+A humanities graduate who unexpectedly ventured into the medical field, I set out on the path of serial entrepreneurship in my thirties, and embracing a third transformation around 40!
+
+Stay hungry, stay foolish! Forever curious, always exploring and always growing!
+
+**What I do:** Executive search / Talent acquisition / Build company from 0 / Professional training / Networking / Investment
+
+## 📫 Contact
+
+- **Email:** zdlandy@hotmail.com 
+- **LinkedIn:** [linkedin.com/in/你的用户名](https://linkedin.com/in/landyzhou) 
