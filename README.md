@@ -6,7 +6,7 @@
 
 I used to worked at global top executive search firms, helping leading companies around the world recruit senior executives in the Asia-Pacific region. I also supported outstanding Chinese enterprises in building companies from 0 to 1, and from 1 to 100.
 
-A humanities graduate who unexpectedly ventured into the medical field, I set out on the path of serial entrepreneurship in my thirties, and embracing a third transformation around 40!
+A humanities studant who unexpectedly ventured into the medical field, I set out on the path of serial entrepreneurship in my thirties, and embracing a third transformation around 40!
 
 Stay hungry, stay foolish! Forever curious, always exploring and always growing!
 
